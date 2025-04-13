@@ -1,6 +1,6 @@
 # Brawl Stars Gems For Free 2025 – Ultimate Guide To Unlock Everything Without Spending A Dime! 💎
 
- Discover how to get Brawl Stars gems for free in 2025 using legit tips, tricks, and gift card hacks. No scams—only real methods!
+* Discover how to get Brawl Stars gems for free in 2025 using legit tips, tricks, and gift card hacks. No scams—only real methods!
 
 
 * # [✅📱💻👉 Tips and Tricks ✅🌐Click Here Free Now](https://slotkinov.com/brawl-stars/)  
@@ -9,7 +9,7 @@
 
 🔥 Ready To Stack Gems Like a Pro?
 
-Want to unlock Brawlers, max out your account, and grab legendary skins—without ever paying real money? You’re not dreaming. In 2025, getting free gems in Brawl Stars is easier than ever.
+* Want to unlock Brawlers, max out your account, and grab legendary skins—without ever paying real money? You’re not dreaming. In 2025, getting free gems in Brawl Stars is easier than ever.
 
 This guide shows you step-by-step methods, secret tips, and powerful tools to help you earn gems without touching your wallet. Let’s dive in and take your Brawl Stars game to the next level—the FREE way!
 
